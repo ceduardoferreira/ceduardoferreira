@@ -1,4 +1,4 @@
-### Carlos Eduardo Ferreira da Silva
+### Ifal student, product manager and programming student. 
 
 <div align="center">
   <a href="https://github.com/ceduardoferreira">
