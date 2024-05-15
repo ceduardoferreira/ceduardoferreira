@@ -1,4 +1,4 @@
-### Ifal student, product manager and programming student. 
+### Entrepreneur, developer and product manager. 
 
 <div align="center">
   <a href="https://github.com/ceduardoferreira">
